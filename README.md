@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @Milek3212
+- 👀 I’m interested in industrial automation  4.0 and device programming
